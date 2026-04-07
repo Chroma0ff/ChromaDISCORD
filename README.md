@@ -1,3 +1,1 @@
-# ChromaDISCORD
-aide...
-le bot discord et sous votre résponsabiliter je n'ais rien avoir avec se que vous faitte avec.
+
